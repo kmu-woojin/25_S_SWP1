@@ -1,7 +1,7 @@
 # my name is ...
 
 
-2025***         Jang woojin
+2025***         def Jang woojin
 kookmin Univ. SW.
 
 
