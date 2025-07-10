@@ -1,7 +1,7 @@
 # my name is ...
 
 
-Jang woojin 2025***
+Student A : 2025***
 kookmin Univ. SW.
 
 
